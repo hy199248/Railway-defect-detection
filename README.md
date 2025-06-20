@@ -4,7 +4,7 @@
 🔐 **Extraction Code**: `Qf68 `
 
 > 📥 **Direct Download**:  
-> [T-铁轨缺陷检测4000YOLO.7z](https://pan.quark.cn/s/your-actual-link)  
+> [T-铁轨缺陷检测4000YOLO.7z](https://pan.baidu.com/s/1iCqG31_ycszks5rR1CY8pQ)  
 > *Open with Quark App | Account: Ja\*es Cameronm*
 
 ---
